@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Jora-lolo
+- 👀 I’m interested in MLBB
+- 🌱 I’m currently learning Programming
